@@ -1,2 +1,2 @@
 # Copy-Right
-Making a Copyright for my work.
+Making a Copyright to work
